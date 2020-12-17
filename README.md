@@ -1,0 +1,2 @@
+# technology
+Disadvntages  of Technologies
